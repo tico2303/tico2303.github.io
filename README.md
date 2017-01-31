@@ -1,1 +1,0 @@
-# tico2303.github.io
